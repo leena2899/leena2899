@@ -1,4 +1,4 @@
-### How you doing!!!
+
 ![Alt Text](https://media2.giphy.com/media/WtTnAfZn6aVJfBzlN3/giphy.gif)
 
 <!--
