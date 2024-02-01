@@ -1,6 +1,5 @@
 
-![Alt Text](![55f1f99ec4fceab6af26e290a9bccdcd-1](https://github.com/leena2899/leena2899/assets/55999130/f5f24f99-5d63-454c-8757-f862cd55cec2)
-)
+![Alt Text](https://media2.giphy.com/media/WtTnAfZn6aVJfBzlN3/giphy.gif)
 
 <!--
 **leena2899/leena2899** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
