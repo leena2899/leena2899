@@ -1,7 +1,5 @@
 
-![Alt Text](![55f1f99ec4fceab6af26e290a9bccdcd-1](https://github.com/leena2899/leena2899/assets/55999130/9bb85fab-a195-4ec5-9aee-1da96ea0754c)
-)
-)
+![Alt Text](![55f1f99ec4fceab6af26e290a9bccdcd-1](https://github.com/leena2899/leena2899/assets/55999130/f5f24f99-5d63-454c-8757-f862cd55cec2)
 )
 
 <!--
