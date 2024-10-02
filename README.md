@@ -1,5 +1,5 @@
 
-![Alt Text](https://cdn.pixabay.com/animation/2022/07/29/14/45/14-45-52-572_512.gif)
+![Alt Text](https://cdn.dribbble.com/users/867253/screenshots/4494971/polarbearwave_800x600.gif)
 
 <!--
 **leena2899/leena2899** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
