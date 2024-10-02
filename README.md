@@ -1,5 +1,5 @@
 
-![Alt Text](https://i.gifer.com/QKLM.mp4)
+![Alt Text](https://gifer.com/QKLM)
 
 <!--
 **leena2899/leena2899** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
